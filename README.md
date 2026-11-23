@@ -57,7 +57,7 @@ Personal Brain MCP, OpenMonetis + Open Finance, and Treino Evolução. Private f
 
 ## Contact
 
-[adayanecoutinho.com](https://adayanecoutinho.com) · [LinkedIn](https://br.linkedin.com/in/adayane-coutinho-76b19631) · [hello@adayanecoutinho.com](mailto:hello@adayanecoutinho.com)
+[adayanecoutinho.com](https://adayanecoutinho.com) · [LinkedIn](https://www.linkedin.com/in/naihara-lucas-b8a098424/) · [hello@adayanecoutinho.com](mailto:hello@adayanecoutinho.com)
 
 ---
 
